@@ -1,4 +1,4 @@
-Hello, art and edit comms are open! I take supporter and nitro only, if youre interested, my user is @milescests, i will likely reply when i am active.
+Hello, art and edit comms are open, i offer more services but dont mainly promote and do them, so feel free to ask if i do them! I take tier 4 supporter and nitro only, if youre interested, my user is @milescests, i will likely reply when i am active.
 My pricelist is being reworked, so please be patient. I will inform you about the pricelist changes as you commission me.
 
 <details align="center">
